@@ -1,4 +1,1 @@
-# se-day3-assignment-samuelnmu
-# se-day3-assignment-samuelnmu
-# se-day3-assignment-samuelnmu
-# se-day3-assignment-samuelnmu
+kindly help, i cannot locate my assignment
